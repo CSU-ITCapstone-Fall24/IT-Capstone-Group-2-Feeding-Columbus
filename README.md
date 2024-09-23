@@ -1,1 +1,1 @@
-# IT-Capstone-Group-2---Feeding-Columbus
+# IT-Capstone-Group-2-Feeding-Columbus
